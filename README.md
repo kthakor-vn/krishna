@@ -6,7 +6,7 @@
 
 ### 🔭 I’m currently working at **Viral Nation**
 
-### 📫 Drop an email to **krishnathakor16.ktg@gmail.com**
+### 📫 Drop an email to **krishnathakor16.kt@gmail.com**
 
 ### Connect with me:
 
